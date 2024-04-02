@@ -5,4 +5,4 @@ Welcome to the "Remake Plot" competition, a unique challenge that unfolds every 
 Here's the exciting part - there's a reward for your effort! The competition runs until Friday at 3:30 PM. The participant who submits the most accurate recreation the earliest will be declared the winner. And the prize? A gift card to Starbucks! So, get your data tools ready and let the plotting begin!
 
 
-Submit the code and image [here](https://docs.google.com/forms/d/1l6FSrfCdw4VdLhOZx15qG7ArIdV8UAmQspjt1vh0sA8/edit)
+Submit the code and image [here](https://forms.gle/BuVBorgzH4drgjqg8)
